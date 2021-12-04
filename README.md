@@ -21,8 +21,6 @@ Jeune homme passionné de nouvelles technologies et d'informatique, ancien étud
 
 👉 Passionné de photographie et adepte des balades dans la nature je sais aussi m’intéresser au monde qui m'entoure. Adepte des vues de paysages je n'hésite pas à me lever tôt pour prendre un levé de soleil en photo. Cette curiosité des paysages me pousse aujourd'hui à vouloir voyager.  📷
 
-👉 Jeune débutant en musculation et ancien adepte d'arts martiaux, le sport est pour moi un moyen de me dépasser aussi bien physiquement que mentalement. Cela m'a aussi permis aussi de développer des qualités comme la discipline, l'organisation ou encore  la rigueur 💪
-
 👉 Passionné d'univers fantastiques et de jeux de rôles tant sur papier qu'en jeux vidéos, ils m'ont permis de faire des rencontres, de m'ouvrir aux autres et d'apprendre à gérer un groupe en tant que maître de jeux 🧙‍♂
 
 A l'écoute d'opportunité pour une première expérience dans le secteur (stage ou emploi)  👂
