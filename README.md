@@ -27,4 +27,4 @@ A l'écoute d'opportunité pour une première expérience dans le secteur  👂
 
 Si vous voulez en savoir plus n'hésitez pas à me contacter : 
    📲 06 35 55 94 84
-  📧 slignere@gmail.com.fr
+  📧 slignere@gmail.com
