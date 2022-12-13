@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Jeune homme passionné de nouvelles technologies et d'informatique. Breton 100% pur beurre.
+Passionné de nouvelles technologies et d'informatique. Breton 100% pur beurre.
 
 💻 Passionné par les nouvelles technologies je me tiens sans cesse au courant des nouveautés de ce monde toujours en mouvement. Toujours assoiffé de connaissances je passe le plus clair de mon temps à améliorer mes compétences mais aussi à en acquérir des nouvelles. Curieux de tout et adepte de toutes les lectures je peux aussi bien dévorer un roman de science fiction, qu'une notice d'utilisation. Ce qui m'a naturellement amené à vouloir faire de ma passion une profession en devenant développeur web. 💻
 
