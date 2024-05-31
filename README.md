@@ -23,7 +23,7 @@ Passionné de nouvelles technologies et d'informatique. Breton 100% pur beurre.
 
 👉 Passionné d'univers fantastiques et de jeux de rôles tant sur papier qu'en jeux vidéos, ils m'ont permis de faire des rencontres, de m'ouvrir aux autres et d'apprendre à gérer un groupe en tant que maître de jeux 🧙‍♂
 
-A l'écoute d'opportunité pour une première expérience dans le secteur  👂
+
 
 Si vous voulez en savoir plus n'hésitez pas à me contacter : 
    📲 06 35 55 94 84
